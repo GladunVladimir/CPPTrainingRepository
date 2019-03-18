@@ -25,3 +25,7 @@ Here I'll post tasks for you. Their will be easy as a conception, but require so
 ## Afterword
 
 It's all that I can think of now. I will be updating this file and make new tasks, so keep an eye for here.
+
+## P.S
+
+ Any questions is appreciated. Any mistakes you found is a +1 in your karma, so don't be shy to say me that I'm wrong :)
